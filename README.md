@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bruh-doggo
-- 👀 I’m interested in your mom
+- 👀 I’m interested in you're mom
 - 🌱 I’m currently learning best way to ur mom 
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me dont
