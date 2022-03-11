@@ -3,6 +3,28 @@
 - 🌱 I’m currently learning best way to ur mom 
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me dont
+j
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+no
 
 <!---
 bruh-doggo/bruh-doggo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
